@@ -6,4 +6,4 @@
 - https://www.instagram.com/pearl.akondor/
 - https://www.linkedin.com/in/pearl-selasi-akondor-007006153/
   
-- ⚡ Fun fact: As a non-coding techie girl, I'm here to break the mold with creativity and effiency in the tech space.  ✨
+- ⚡ Fun fact: As a non-coding techie girl, I'm here to break the mold with creativity and efficiency in the tech space.  ✨
